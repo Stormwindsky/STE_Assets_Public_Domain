@@ -1,0 +1,1 @@
+# STE_Assets_Public_Domain
